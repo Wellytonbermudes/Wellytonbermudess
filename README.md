@@ -1,1 +1,4 @@
-# Wellytonbermudess
+# Wellytonbermudess 🫀
+
+
+- sou estudanteda plataforma Alura
